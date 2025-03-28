@@ -1,6 +1,7 @@
 <h1>How to use BingX referral code?</h1>
-<h2>Introduction</h2>
-<p>BingX is a leading cryptocurrency trading platform offering various bonuses and rewards to new users who sign up using a <strong>BingX referral code</strong>. If you're looking for a way to earn extra rewards while trading, using a <strong>BingX signup bonus</strong>, <strong>BingX discount code</strong>, or <strong>BingX promo code</strong> can help you get started with additional perks. This guide will walk you through how to use the <strong>BingX referral code - IMOIJ1</strong>, claim up to <strong>$5125 USDT</strong>, and enjoy a <strong>50% trading fee discount</strong>.</p>
+
+<p>This guide will walk you through how to use the <strong>BingX referral code - IMOIJ1</strong>, claim up to <strong>$5125 USDT</strong>, and enjoy a <strong>50% trading fee discount</strong>.
+BingX is a leading cryptocurrency trading platform offering various bonuses and rewards to new users who sign up using a <strong>BingX referral code</strong>. If you're looking for a way to earn extra rewards while trading, using a <strong>BingX signup bonus</strong>, <strong>BingX discount code</strong>, or <strong>BingX promo code</strong> can help you get started with additional perks.</p>
 
 <h2>Where to Find a BingX Referral Code?</h2>
 <ul>
